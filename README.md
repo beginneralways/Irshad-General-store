@@ -1,1 +1,0 @@
-# Irshad-General-store
